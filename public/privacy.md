@@ -14,5 +14,6 @@ Embora a Skill não colete dados pessoais, tomamos medidas razoáveis para garan
 5. Alterações a Esta Política de Privacidade
 Podemos atualizar nossa Política de Privacidade de tempos em tempos. Quaisquer alterações serão publicadas nesta página. Recomendamos que você revise esta Política de Privacidade periodicamente para quaisquer alterações.
 6. Contato
-Se você tiver alguma dúvida sobre esta Política de Privacidade, pode entrar em contato conosco através do [Seu E-mail de Contato ou Link para Suporte].
+Se você tiver alguma dúvida sobre esta Política de Privacidade, pode entrar em contato conosco através do cristiandosantos71@gmail.com
+
 Data de Efetivação: 22 de julho de 2025
